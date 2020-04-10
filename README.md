@@ -1,5 +1,4 @@
-Lourdes Mendez
-26 años
+
 
 
 
